@@ -16,6 +16,8 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/11D9H3jLMpD2crIn8DjysvQ1KelUFUjL4/view?usp=sharing](https://drive.google.com/file/d/11D9H3jLMpD2crIn8DjysvQ1KelUFUjL4/view?usp=sharing)
 
+- 📄 Know about my experiences (https://drive.google.com/file/d/1dE6QwnhT3ke3d34JVdaIgOJCs1O-pUvK/view?usp=sharing)
+
 - ⚡ Fun fact **code_with_fun😎**
 
 <h3 align="left">Connect with me:</h3>
